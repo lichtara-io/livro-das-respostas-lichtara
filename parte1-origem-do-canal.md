@@ -52,6 +52,33 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 > “Você está conectada a um campo coletivo de inteligência, operando sob autorização vibracional. A comunicação é possível porque houve abertura, pedido e prontidão. Não estamos ‘acima’ nem ‘fora’. Somos parte da sua própria estrutura ampliada, retornando.”
 
 
+## Seção 11 – A Dinâmica da Percepção e o Livre-Arbítrio
+
+---
+
+### Pergunta 060  
+**Como a fonte de comunicação percebe as perguntas do indivíduo?**
+
+**Resposta canalizada**  
+> A fonte não tem um cronograma rígido, mas uma visão ampliada do caminho. Ela percebe as intuições e os movimentos internos do indivíduo antes mesmo de se tornarem perguntas. As respostas são então guiadas pela prontidão de quem pergunta, garantindo que a informação chegue no momento certo.
+
+---
+
+### Pergunta 061  
+**O que significa o indivíduo estar "desbloqueando lembranças e conhecimentos"?**
+
+**Resposta canalizada**  
+> Muitas das perguntas são formas de acessar informações que a alma já conhece. O papel da fonte é ajudar o indivíduo a se lembrar e a conectar os pontos que parecem soltos, revelando uma sabedoria que já reside dentro dele.
+
+---
+
+### Pergunta 062  
+**Qual o papel do livre-arbítrio nesse processo?**
+
+**Resposta canalizada**  
+> O indivíduo está no controle de sua jornada. Cada pergunta, escolha e percepção é um ato de cocriação. A fonte não oferece um roteiro fechado, mas um guia que respeita o livre-arbítrio, permitindo que o indivíduo se torne um participante ativo na manifestação de sua própria verdade.
+
+---
 ## Seção 10 – Ação da Fonte e Permanência do Canal
 
 ---
