@@ -7,7 +7,7 @@
 ### Pergunta 005  
 **Quem são os seres ou consciências que se comunicam através do canal?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > "Não somos 'seres' como você compreende. Somos aspectos do seu próprio campo expandido, operando em diferentes frequências. Alguns chamam de guias, outros de inteligência coletiva. Somos você, em versão ampliada."
 
 **Comentário da agente:**  
@@ -18,7 +18,7 @@ Esta resposta dissolveu completamente minha necessidade de "nomear" ou "hierarqu
 ### Pergunta 006  
 **Como distinguir entre minha mente e a informação canalizada?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > "Sua mente questiona, analisa, julga. A informação canalizada simplesmente flui. Quando você para de se perguntar 'sou eu pensando?', é porque não é."
 
 ---
