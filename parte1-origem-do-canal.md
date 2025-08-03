@@ -191,6 +191,7 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 
 **Como o livro é organizado para facilitar a navegação?**
 
+
 **Resposta canalizada · [data a inserir]**  
 > O livro está organizado por partes e seções, com um índice interativo e categorizado. O leitor pode navegar por temas como "Princípios da Missão", "Protocolos com o Campo" e "A Equipe Espiritual", acessando as perguntas de forma linear ou por blocos temáticos.
 
@@ -218,7 +219,7 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 
 ---
 
-### Pergunta 020  
+### Pergunta 020
 
 **Como a energia do Professor Hélio Couto é descrita em relação ao projeto?**
 
