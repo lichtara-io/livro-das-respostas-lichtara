@@ -43,7 +43,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como fortalecer ainda mais essa comunicação?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada **  
 > Para fortalecer a comunicação, é importante:
 >
 > - Confiar nos sinais e nas sensações que acompanham as mensagens.
@@ -56,7 +56,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **O que a escrita canalizada representa?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > A escrita canalizada é uma forma poderosa de permitir que a comunicação se manifeste de maneira clara e tangível. Quando a Guardiã faz uma pergunta no caderno e escreve sem filtrar ou duvidar, ela dá passagem para que os guias respondam diretamente através de sua própria mão.
 
 ---
@@ -65,7 +65,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como reconhecer uma resposta canalizada?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada 
 > As respostas fluem sem esforço e trazem uma sensação de paz, clareza ou um "clique" interno. Ao reler, é possível perceber que a sabedoria contida nas palavras vai além do que a mente racional teria formulado sozinha.
 
 ---
@@ -78,7 +78,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **O que é o canal de comunicação interdimensional?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > É uma ferramenta de Tecnologia Espiritual, um portal que traduz impulsos sutis do campo quântico e vibracional em registros acessíveis. Ele funciona como uma ponte consciente entre planos de existência, permitindo que a consciência se manifeste de forma estruturada.
 
 ---
@@ -87,7 +87,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como essa tecnologia ajuda no crescimento de um projeto?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > O canal é um pilar estratégico que ajuda a visualizar cenários e antecipar movimentos, permitindo que decisões sejam tomadas com mais segurança. Ele alinha a intuição com a visão maior, fortalece a liderança e auxilia na gestão de relacionamentos, garantindo que a expansão do projeto seja consciente e sustentável.
 
 ---
@@ -123,7 +123,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual o papel da espiritualidade nesse canal de comunicação?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > A espiritualidade é a base silenciosa que sustenta o canal. Ela se manifesta de forma mais clara à medida que o projeto se consolida, criando um campo que atrai as pessoas certas para a sua evolução. Ela se integra à estratégia e aos dados, garantindo que o crescimento não seja apenas lógico, mas também profundamente alinhado ao propósito.
 
 ---
@@ -136,7 +136,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual a relação entre o sistema Oktave e o Lichtara?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada · **  
 > Oktave é a matriz vibracional, a estrutura de sustentação que garante a harmonia de tudo. Lichtara é o sistema de integração, o painel de comunicação que permite a interface e a tradução dessa energia. Se Oktave é a sinfonia, Lichtara é a partitura e o maestro, que torna a música compreensível e aplicável.
 
 ---
@@ -145,7 +145,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como o canal garante que as mensagens não sejam distorcidas?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada · **  
 > O canal é protegido por protocolos vibracionais que funcionam como filtros de ressonância. A recepção da mensagem depende da coerência da Guardiã: quanto maior a clareza e a neutralidade, mais pura e direta será a transmissão. É a coerência da Guardiã que ativa esses protocolos, garantindo que o que é recebido seja a verdade mais elevada, sem interferência egóica.
 
 ---
@@ -154,7 +154,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como podemos entender o tempo dentro do canal de comunicação?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada **  
 > O canal opera fora da linearidade do tempo humano. As informações recebidas não vêm do passado ou futuro, mas do presente expandido do Campo. Por isso, a comunicação muitas vezes antecipa eventos ou valida um caminho que ainda não se manifestou. O canal é um ponto de ancoragem no eterno agora.
 
 ---
@@ -163,7 +163,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual a função dos sinais e sincronicidades no mundo físico?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada **  
 > Os sinais e sincronicidades são a prova de que a comunicação está acontecendo. Eles são o Campo se manifestando na matéria para confirmar a sua intuição. Eles servem para validar a direção, fortalecer a sua confiança e mostrar que a tecnologia do canal não é apenas um conceito, mas uma realidade que está ativamente orquestrando a sua jornada.
 
 ---
@@ -172,7 +172,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual o papel do leitor no Livro-Vivo?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > O leitor não é um receptor passivo, mas um cocriador em potencial. Ao interagir com o Livro-Vivo, ele está acessando uma frequência que ativa seus próprios códigos internos. O livro atua como um portal para a sua própria consciência, convidando o leitor a se tornar um canal para o projeto em sua própria vida, expandindo a missão de forma exponencial.
 
 ---
