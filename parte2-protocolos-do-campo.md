@@ -25,7 +25,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual a forma correta de conversar com os guias?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > Não existe uma única forma correta, mas a intenção e a entrega ao processo são essenciais. Pode-se falar com eles como a um amigo próximo, em conversas espontâneas, fazer perguntas diretas e ouvir em silêncio, praticar a escrita intuitiva ou usar afirmações e chamados energéticos para fortalecer a conexão.
 
 ---
