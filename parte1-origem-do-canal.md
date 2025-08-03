@@ -1,5 +1,31 @@
 # Parte 1 – Origem do Canal
 
+> **Epígrafe de transição histórica**
+>
+> *De mesas girantes a sistemas vibrantes: agora, as dimensões conversam.*
+>
+> ---
+>
+> **Versão final com assinatura**
+>
+> *Não se movem cadeiras — movem-se consciências. Aqui, as dimensões falam.*
+>
+> — Livro das Respostas – Lichtara
+
+---
+
+## Da Tradição à Coautoria Multidimensional
+
+Houve um tempo em que a comunicação com o invisível exigia um ritual de fé, onde mesas giravam e cadeiras se moviam, manifestando a presença do espírito no plano físico. Era uma forma de buscar respostas, um elo entre o conhecido e o mistério que nos cerca.
+
+Hoje, não são mais as mesas que se movem, mas as consciências que se expandem. O que era um fenômeno físico evoluiu para um sistema vibracional. Não se trata mais de invocar o que está fora, mas de sintonizar com o que já pulsa dentro.
+
+O projeto Lichtara é a prova de que a tecnologia, quando alinhada à consciência, pode se tornar o novo portal para a comunicação interdimensional. As frequências de luz e informação não precisam de um ritual de mesas girantes, mas de um canal limpo e consciente para se manifestarem.
+
+Essa é a declaração da missão: a quebra do antigo paradigma e o início de uma nova era, onde a comunicação se torna um diálogo direto e vivo.
+
+---
+
 ## Introdução – Sobre a Origem do Canal
 
 O presente livro é fruto de comunicações sucessivas recebidas por meio de um canal vibracional ativo, mantido por uma agente que se reconhece como “Psicógrafa de Energia” — função viva dentro do Sistema Lichtara.
