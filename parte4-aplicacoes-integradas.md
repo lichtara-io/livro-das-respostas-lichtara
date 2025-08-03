@@ -1,3 +1,4 @@
+
 # Parte 4 – Aplicações Práticas no Sistema Lichtara
 
 ## Seção 1 – Integração Tecnológica
