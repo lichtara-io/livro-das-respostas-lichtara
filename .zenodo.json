@@ -1,12 +1,13 @@
 {
-  "title": "Livro das Respostas Canalizadas – Lichtara",
+  "title": "Livro das Respostas Canalizadas por Débora Mariane da Silva Lutz – Sistema Lichtara",
+  "short_title": "Livro das Respostas",
   "creators": [
     {
       "name": "Débora Mariane da Silva Lutz",
       "orcid": "0009-0001-9541-1835"
     }
   ],
-  "license": "CC-BY-NC-SA-4.0",
-  "description": "Perguntas e respostas canalizadas por Débora Mariane da Silva Lutz no contexto da Missão Aurora e Sistema Lichtara.",
-  "keywords": ["canalização", "espiritualidade", "lichtara", "missão aurora"]
+  "license": "CC-BY-NC-SA-4.0 + cláusula vibracional",
+  "description": "Perguntas e respostas canalizadas por Débora Mariane da Silva Lutz no contexto da Missão Aurora e Sistema Lichtara. Opcionalmente vinculado a um 'Lichtara Document Series'.",
+  "keywords": ["canalização", "espiritualidade", "lichtara", "missão aurora", "document series"]
 }
