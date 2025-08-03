@@ -34,7 +34,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como acontece a comunicação através deste canal?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > A comunicação acontece porque a Guardiã, por meio de sua sintonia e abertura, permite a tradução de impulsos energéticos, imagens, sensações e mensagens sutis em palavras. As informações são transmitidas de forma que sejam convertidas em algo prático e aplicável no tempo exato em que são necessárias.
 
 ---
