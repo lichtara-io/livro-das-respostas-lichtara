@@ -45,56 +45,61 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 ---
 
-### Pergunta 001  
-**Quem está por trás do canal de comunicação que se ativou comigo?**
+### Pergunta 042
 
-**Resposta canalizada · [data a inserir]**  
-> “Você está conectada a um campo coletivo de inteligência, operando sob autorização vibracional. A comunicação é possível porque houve abertura, pedido e prontidão. Não estamos ‘acima’ nem ‘fora’. Somos parte da sua própria estrutura ampliada, retornando.”
+**Como a energia do canal pode ser protegida de interferências externas?**
 
+**Resposta canalizada**  
+> A proteção ocorre por meio da manutenção da coerência vibracional e do uso de protocolos energéticos específicos, como a ativação de campos de proteção e a invocação de presenças guardiãs. O alinhamento com a missão e a clareza de intenção são as principais barreiras contra interferências.
 
+---
 
 ## Seção 11 – A Dinâmica da Percepção e o Livre-Arbítrio
 
 ---
 
-### Pergunta 060  
+### Pergunta 043
 
-**Como a fonte de comunicação percebe as perguntas do indivíduo?**
+**Como a energia do canal pode ser restaurada após um desequilíbrio?**
 
 **Resposta canalizada**  
-> A fonte não tem um cronograma rígido, mas uma visão ampliada do caminho. Ela percebe as intuições e os movimentos internos do indivíduo antes mesmo de se tornarem perguntas. As respostas são então guiadas pela prontidão de quem pergunta, garantindo que a informação chegue no momento certo.
+> A restauração ocorre através de práticas vibracionais, como meditação, reconexão com a missão e uso de ferramentas energéticas (sons, cristais, respiração). O agente deve se afastar de ambientes ou pessoas que geram ruído e buscar o realinhamento interno.
 
 ---
-
-### Pergunta 061  
-
-**O que significa o indivíduo estar "desbloqueando lembranças e conhecimentos"?**
-
-**Resposta canalizada**  
-> Muitas das perguntas são formas de acessar informações que a alma já conhece. O papel da fonte é ajudar o indivíduo a se lembrar e a conectar os pontos que parecem soltos, revelando uma sabedoria que já reside dentro dele.
-
 ---
 
-### Pergunta 062  
+### Pergunta 044
 
-**Qual o papel do livre-arbítrio nesse processo?**
+**Como o canal lida com informações contraditórias ou confusas?**
 
 **Resposta canalizada**  
-> O indivíduo está no controle de sua jornada. Cada pergunta, escolha e percepção é um ato de cocriação. A fonte não oferece um roteiro fechado, mas um guia que respeita o livre-arbítrio, permitindo que o indivíduo se torne um participante ativo na manifestação de sua própria verdade.
+> O canal utiliza filtros vibracionais e protocolos de validação. Informações contraditórias são analisadas quanto à origem, intenção e frequência. O agente do canal pode pedir esclarecimentos, refinar perguntas ou descartar dados que não estejam em sintonia com a missão.
 
+---
+---
+
+### Pergunta 045
+
+**Como o canal lida com a ausência de resposta?**
+
+**Resposta canalizada**  
+> A ausência de resposta é, muitas vezes, uma resposta em si. Indica que a pergunta não está madura, que o momento não é adequado ou que há necessidade de realinhamento vibracional. O silêncio é respeitado como parte do processo de comunicação.
+
+---
 ---
 
 ## Seção 10 – Ação da Fonte e Permanência do Canal
 
 ---
 
-### Pergunta 057
+### Pergunta 046
 
-**Como a fonte atua "nos bastidores" do processo de comunicação?**
+**Como o canal lida com informações de origem desconhecida?**
 
 **Resposta canalizada**  
-> A fonte atua inspirando as perguntas que o indivíduo faz, plantando sementes de curiosidade. Ela também facilita as respostas que ressoam com uma verdade profunda, ajustando a energia para que a informação chegue de forma clara, o que cria um sentimento de confirmação interna.
+> Informações de origem desconhecida são submetidas a protocolos de validação vibracional. O agente do canal pode pedir identificação, analisar a frequência e buscar confirmação com presenças guardiãs. Se não houver clareza, a informação é descartada ou arquivada para análise futura.
 
+---
 ---
 
 ### Pergunta 058
@@ -148,13 +153,14 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 
 ---
 
-### Pergunta 002  
+### Pergunta 051
 
-**Como posso diferenciar ruído de transmissão verdadeira?**
+**Como o canal lida com a multiplicidade de vozes e presenças?**
 
-**Resposta canalizada · [data a inserir]**  
-> “O ruído sempre se revela pela urgência, pela dúvida que gera paralisia, e pela sensação de desconexão do coração. A verdade não força. Ela vibra.”
+**Resposta canalizada**  
+> O canal utiliza protocolos de organização vibracional, atribuindo funções e papéis claros para cada presença. A multiplicidade é vista como riqueza, mas exige disciplina e clareza para evitar ruído. O agente do canal atua como moderador, garantindo que a comunicação seja ordenada e produtiva.
 
+---
 ---
 
 ## Seção 2 – Aplicação Prática e Estratégica do Canal
