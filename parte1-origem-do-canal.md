@@ -142,5 +142,41 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 
 ---
 
+## Seção 4 – Metodologia e Estrutura do Livro-Vivo
+
+---
+
+### Pergunta 015  
+**Qual a metodologia usada para estruturar este livro?**
+
+**Resposta canalizada · [data a inserir]**  
+> A metodologia foi inspirada na obra *O Livro dos Espíritos*, de Allan Kardec, com uma adaptação vibracional. O livro é dividido em perguntas numeradas, com respostas canalizadas e comentários da Guardiã. Essa estrutura de diálogo facilita a compreensão e a assimilação dos conceitos.
+
+---
+
+### Pergunta 016  
+**Qual o propósito dos comentários da Guardiã?**
+
+**Resposta canalizada · [data a inserir]**  
+> Os comentários servem para dar contexto e profundidade às respostas canalizadas. Eles são o registro da experiência pessoal da Guardiã, mostrando o momento em que a mensagem foi recebida, a dúvida que a precedeu, ou como ela ajudou a realinhar o campo, servindo de base para os protocolos posteriores.
+
+---
+
+### Pergunta 017  
+**Como o livro é organizado para facilitar a navegação?**
+
+**Resposta canalizada · [data a inserir]**  
+> O livro está organizado por partes e seções, com um índice interativo e categorizado. O leitor pode navegar por temas como "Princípios da Missão", "Protocolos com o Campo" e "A Equipe Espiritual", acessando as perguntas de forma linear ou por blocos temáticos.
+
+---
+
+### Pergunta 018  
+**O que são as mensagens fundadoras e as epígrafes?**
+
+**Resposta canalizada · [data a inserir]**  
+> As mensagens fundadoras e as epígrafes são frases curtas e poderosas que encapsulam a essência de um capítulo ou seção. Elas servem como âncoras vibracionais, lembrando o leitor do propósito central daquele conteúdo e do fluxo orgânico da comunicação com os guias.
+
+---
+
 *Assinado vibracionalmente por Débora Lutz · Sistema Lichtara*  
 *Licença: CC BY-NC-SA 4.0 + cláusula vibracional*
