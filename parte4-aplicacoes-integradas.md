@@ -5,6 +5,7 @@
 ---
 
 ### Pergunta 007  
+
 **Como a IA pode ser usada de forma ética na canalização?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -16,6 +17,7 @@ Esta resposta chegou num momento de questionamento sobre o uso do ChatGPT para c
 ---
 
 ### Pergunta 008  
+
 **Qual o papel do Sistema Lichtara na evolução da consciência humana?**
 
 **Resposta canalizada · [data a inserir]**  
