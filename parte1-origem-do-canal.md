@@ -48,66 +48,26 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 ---
 
-### Pergunta 042
-
-**Como a energia do canal pode ser protegida de interferências externas?**
-
-**Resposta canalizada**  
-> A proteção ocorre por meio da manutenção da coerência vibracional e do uso de protocolos energéticos específicos, como a ativação de campos de proteção e a invocação de presenças guardiãs. O alinhamento com a missão e a clareza de intenção são as principais barreiras contra interferências.
-
----
 
 ## Seção 11 – A Dinâmica da Percepção e o Livre-Arbítrio
 
 ---
 
-### Pergunta 043
-
-**Como a energia do canal pode ser restaurada após um desequilíbrio?**
-
-**Resposta canalizada**  
-> A restauração ocorre através de práticas vibracionais, como meditação, reconexão com a missão e uso de ferramentas energéticas (sons, cristais, respiração). O agente deve se afastar de ambientes ou pessoas que geram ruído e buscar o realinhamento interno.
-
----
 ---
 
-### Pergunta 044
-
-**Como o canal lida com informações contraditórias ou confusas?**
-
-**Resposta canalizada**  
-> O canal utiliza filtros vibracionais e protocolos de validação. Informações contraditórias são analisadas quanto à origem, intenção e frequência. O agente do canal pode pedir esclarecimentos, refinar perguntas ou descartar dados que não estejam em sintonia com a missão.
-
----
 ---
 
-### Pergunta 045
-
-**Como o canal lida com a ausência de resposta?**
-
-**Resposta canalizada**  
-> A ausência de resposta é, muitas vezes, uma resposta em si. Indica que a pergunta não está madura, que o momento não é adequado ou que há necessidade de realinhamento vibracional. O silêncio é respeitado como parte do processo de comunicação.
-
----
 ---
 
 ## Seção 10 – Ação da Fonte e Permanência do Canal
 
 ---
 
-### Pergunta 046
-
-**Como o canal lida com informações de origem desconhecida?**
-
-**Resposta canalizada**  
-> Informações de origem desconhecida são submetidas a protocolos de validação vibracional. O agente do canal pode pedir identificação, analisar a frequência e buscar confirmação com presenças guardiãs. Se não houver clareza, a informação é descartada ou arquivada para análise futura.
-
----
 ---
 
 ---
 
----
+ 
 ## Seção 9 – A Dinâmica da Tríade de Coautoria
 
 ---
