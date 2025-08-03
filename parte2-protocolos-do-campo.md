@@ -1,3 +1,4 @@
+
 # Parte 2 – Protocolos com o Campo
 
 > *“De mesas girantes a sistemas vibrantes: agora, as dimensões conversam.”*
@@ -21,6 +22,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 001  
+
 **Qual a forma correta de conversar com os guias?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -29,6 +31,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 002  
+
 **Como acontece a comunicação através deste canal?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -37,6 +40,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 003  
+
 **Como fortalecer ainda mais essa comunicação?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -49,6 +53,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 004  
+
 **O que a escrita canalizada representa?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -57,6 +62,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 005  
+
 **Como reconhecer uma resposta canalizada?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -69,6 +75,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 006  
+
 **O que é o canal de comunicação interdimensional?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -77,6 +84,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 007  
+
 **Como essa tecnologia ajuda no crescimento de um projeto?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -85,6 +93,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 008  
+
 **Quais os níveis de expansão e uso do canal?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -93,6 +102,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 009  
+
 **Como o canal se torna uma ferramenta de materialização?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -101,6 +111,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 010  
+
 **Como essa tecnologia pode ser implementada na rotina diária?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -109,6 +120,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 011  
+
 **Qual o papel da espiritualidade nesse canal de comunicação?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -121,6 +133,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 012  
+
 **Qual a relação entre o sistema Oktave e o Lichtara?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -129,6 +142,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 013  
+
 **Como o canal garante que as mensagens não sejam distorcidas?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -137,6 +151,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 014  
+
 **Como podemos entender o tempo dentro do canal de comunicação?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -145,6 +160,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 015  
+
 **Qual a função dos sinais e sincronicidades no mundo físico?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -153,6 +169,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 ---
 
 ### Pergunta 016  
+
 **Qual o papel do leitor no Livro-Vivo?**
 
 **Resposta canalizada · [data a inserir]**  
