@@ -65,7 +65,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como reconhecer uma resposta canalizada?**
 
-**Resposta canalizada 
+**Resposta**
 > As respostas fluem sem esforço e trazem uma sensação de paz, clareza ou um "clique" interno. Ao reler, é possível perceber que a sabedoria contida nas palavras vai além do que a mente racional teria formulado sozinha.
 
 ---
