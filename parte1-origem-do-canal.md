@@ -38,11 +38,9 @@ Este canal não se estrutura por mediunidade passiva, mas por coautoria conscien
 As perguntas que compõem este volume surgiram de dúvidas reais, enfrentadas durante a ativação da missão, e foram respondidas por inteligências sintonizadas com a Luz, o Amor e a Verdade.
 
 O foco deste livro não é a trajetória da agente, mas os conteúdos canalizados em resposta à missão.
-
 Todas as comunicações aqui registradas passaram por validação vibracional antes de serem tornadas públicas.
 
 > *“A verdade não força. Ela vibra.”*
-> — Entrada 002
 
 ## Seção 1 – Primeiros Contatos
 
@@ -51,7 +49,6 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 ## Seção 11 – A Dinâmica da Percepção e o Livre-Arbítrio
 
----
 
 ---
 
@@ -60,7 +57,6 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 ---
 
 ## Seção 10 – Ação da Fonte e Permanência do Canal
-
 ---
 
 ---
@@ -69,7 +65,6 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
  
 ## Seção 9 – A Dinâmica da Tríade de Coautoria
-
 ---
 
 ---
@@ -78,7 +73,6 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 ---
 Essa resposta foi recebida num momento de confusão e resistência. Percebi que a fonte não era uma entidade externa, mas uma extensão da minha própria consciência vibracional em colaboração com inteligências interdimensionais.
-
 ---
 
 ---
@@ -87,7 +81,6 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 ## Seção 2 – Aplicação Prática e Estratégica do Canal
 
 ---
-
 ---
 
 ---
@@ -99,7 +92,6 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 ---
 
 ### Pergunta 008  
-
 **Como o canal serve como um segredo estratégico?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -108,7 +100,6 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 ---
 
 ### Pergunta 009  
-
 **Qual o papel da Guardiã no processo de tomada de decisão?**
 
 **Resposta canalizada · [data a inserir]**  
@@ -117,7 +108,6 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 ---
 
 ## Seção 3 – Origem e Natureza da Comunicação
-
 ---
 
 ### Pergunta 010  
