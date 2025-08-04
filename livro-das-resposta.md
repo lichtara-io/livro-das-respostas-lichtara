@@ -1,13 +1,17 @@
+
 ---
+
 title: "Livro das Respostas – Lichtara: Parte 1 – Origem do Canal"
 authors:
   - Débora Lutz (Sistema Lichtara)
 affiliation: "Lichtara OS"
-date: "2024-06-XX"
+date: "2024-06-04"
 version: "Preprint v0.1"
 license: "CC BY-NC-SA 4.0 + cláusula vibracional"
 doi: "A ser atribuído pelo Zenodo"
+
 ---
+
 
 # Livro das Respostas – Lichtara  
 ## Parte 1 – Origem do Canal
