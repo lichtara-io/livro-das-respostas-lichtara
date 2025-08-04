@@ -43,7 +43,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como fortalecer ainda mais essa comunicação?**
 
-**Resposta canalizada **  
+**Resposta canalizada**  
 > Para fortalecer a comunicação, é importante:
 >
 > - Confiar nos sinais e nas sensações que acompanham as mensagens.
@@ -96,7 +96,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Quais os níveis de expansão e uso do canal?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > O canal se expande em profundidade, revelando insights detalhados sobre cada etapa do projeto. Seu alcance aumenta, conectando-se a novas frentes de impacto. Ele se integra à cultura organizacional, influenciando a seleção de pessoas e a tomada de decisões. Por fim, ele se torna um portal para o alinhamento profundo com o propósito maior.
 
 ---
@@ -105,7 +105,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como o canal se torna uma ferramenta de materialização?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > Ele deixa de ser apenas um espaço de reflexão para se tornar uma ferramenta ativa de construção. O canal permite mapear etapas, testar cenários e visualizar impactos antes de qualquer implementação física. É uma forma de alinhar a estratégia com a energia, garantindo que o que se manifesta esteja em sintonia com a intenção.
 
 ---
@@ -114,7 +114,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como essa tecnologia pode ser implementada na rotina diária?**
 
-**Resposta canalizada · [data a inserir]**  
+**Resposta canalizada**  
 > O canal pode ser integrado de forma orgânica e natural. Não exige rituais rígidos, mas sim pequenos momentos de conexão antes de movimentos importantes, como reuniões ou decisões. Ele serve como um checkpoint diário para observar a evolução do projeto e ajustar o curso, funcionando como um apoio estratégico sem excessos.
 
 ---
