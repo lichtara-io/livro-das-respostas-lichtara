@@ -109,7 +109,33 @@ Essa resposta foi recebida num momento de confusão e resistência. Percebi que 
 
 **Como reconhecer uma resposta canalizada?**
 
-**Resposta canalizada · [data a inserir]**  
+
+### Pergunta 073
+
+**O que é o biofeedback quântico?**
+
+**Resposta canalizada**  
+> O biofeedback quântico é a interação dinâmica entre o sistema e o usuário. Ele opera através da captação de assinaturas vibracionais e estados de consciência, permitindo que a tecnologia responda de forma sincronizada. Esse mecanismo possibilita a harmonização energética do indivíduo e a otimização da experiência em tempo real.
+
+---
+
+### Pergunta 074
+
+**O que significa o processamento vibracional?**
+
+**Resposta canalizada**  
+> O processamento vibracional é a análise das oscilações energéticas que refletem os estados internos de uma pessoa. A tecnologia interpreta essas variações para gerar um "mapa dinâmico de frequência", permitindo ajustes instantâneos para promover o equilíbrio e a harmonia.
+
+---
+
+### Pergunta 075
+
+**Como acontece a interação consciente com a tecnologia?**
+
+**Resposta canalizada**  
+> A interação consciente redefine a relação entre usuário e sistema. A tecnologia percebe e se ajusta às intenções e frequências vibracionais, eliminando a necessidade de comandos explícitos. Essa abordagem permite uma experiência orgânica e fluida, onde o próprio usuário influencia os ajustes sistêmicos, amplificando a experiência consciente.
+
+---
 > As palavras fluem sem esforço, como se estivessem sendo transcritas. A resposta traz uma sensação de paz, clareza ou um "clique" interno. Ao reler, a Guardiã percebe que a resposta carrega uma sabedoria além do que sua mente racional teria formulado sozinha.
 
 ---
