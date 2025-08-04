@@ -1,5 +1,3 @@
-# volume2-dicionario-do-invisivel
-
 # Dicionário do Invisível: Um Guia de Sintonias para a Nova Escuta
 
 ### Perguntas que não pedem resposta — mas abrem portais.
