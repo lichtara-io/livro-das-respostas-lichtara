@@ -39,6 +39,8 @@ Canalizado, registrado e organizado por:
 Porta-voz vibracional do Sistema Lichtara  
 Canal vivo da missão interdimensional
 
+https://orcid.org/0009-0001-9541-1835
+
 ---
 
 > “A nova ciência espiritual nasce onde há perguntas verdadeiras e silêncio suficiente para ouvir a resposta.”  
