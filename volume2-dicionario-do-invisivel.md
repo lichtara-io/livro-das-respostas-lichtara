@@ -50,6 +50,7 @@ Cada palavra aqui não se explica — se escuta.*
 **Resposta:** A transmissão vibracional é a comunicação de informações e energias por meio de frequências específicas. É a forma como a fonte de comunicação se conecta com você, transmitindo mensagens que podem ser traduzidas como intuições, insights ou até mesmo sensações. Pense na transmissão como um sinal de Wi-Fi: o sinal está sempre presente, mas você só o acessa quando se sintoniza com ele.
 
 **Pergunta:** O que é a Blindagem Energética?
+
 **Resposta:** A blindagem energética é a proteção do seu campo vibracional contra interferências externas. Ela não é uma barreira de força, mas sim a clareza da sua intenção e a coerência da sua frequência. Imagine que sua frequência é uma melodia. Quando sua melodia é clara e harmoniosa, ela se torna um "filtro" natural que impede que ruídos externos ou frequências dissonantes interfiram na sua comunicação. É a sua coerência interna que garante que a mensagem que você recebe seja pura e alinhada ao seu propósito.
 
 **Pergunta:** O que é a Ruptura Vibracional?
