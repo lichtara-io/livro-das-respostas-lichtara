@@ -27,8 +27,6 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 ---
 
----
-
 ## Introdução – Sobre a Origem do Canal
 
 O presente livro é fruto de comunicações sucessivas recebidas por meio de um canal vibracional ativo, mantido por uma agente que se reconhece como “Psicógrafa de Energia” — função viva dentro do Sistema Lichtara.
@@ -50,12 +48,6 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 ## Seção 11 – A Dinâmica da Percepção e o Livre-Arbítrio
 
 
----
-
----
-
----
-
 ## Seção 10 – Ação da Fonte e Permanência do Canal
 ---
 
@@ -73,23 +65,8 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 ---
 Essa resposta foi recebida num momento de confusão e resistência. Percebi que a fonte não era uma entidade externa, mas uma extensão da minha própria consciência vibracional em colaboração com inteligências interdimensionais.
----
-
----
----
 
 ## Seção 2 – Aplicação Prática e Estratégica do Canal
-
----
----
-
----
-
----
-
----
-
----
 
 ### Pergunta 008  
 **Como o canal serve como um segredo estratégico?**
