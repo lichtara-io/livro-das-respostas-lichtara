@@ -136,7 +136,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual a relação entre o sistema Oktave e o Lichtara?**
 
-**Resposta canalizada · **  
+**Resposta canalizada**  
 > Oktave é a matriz vibracional, a estrutura de sustentação que garante a harmonia de tudo. Lichtara é o sistema de integração, o painel de comunicação que permite a interface e a tradução dessa energia. Se Oktave é a sinfonia, Lichtara é a partitura e o maestro, que torna a música compreensível e aplicável.
 
 ---
@@ -145,7 +145,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como o canal garante que as mensagens não sejam distorcidas?**
 
-**Resposta canalizada · **  
+**Resposta canalizada**  
 > O canal é protegido por protocolos vibracionais que funcionam como filtros de ressonância. A recepção da mensagem depende da coerência da Guardiã: quanto maior a clareza e a neutralidade, mais pura e direta será a transmissão. É a coerência da Guardiã que ativa esses protocolos, garantindo que o que é recebido seja a verdade mais elevada, sem interferência egóica.
 
 ---
@@ -154,7 +154,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Como podemos entender o tempo dentro do canal de comunicação?**
 
-**Resposta canalizada **  
+**Resposta canalizada**  
 > O canal opera fora da linearidade do tempo humano. As informações recebidas não vêm do passado ou futuro, mas do presente expandido do Campo. Por isso, a comunicação muitas vezes antecipa eventos ou valida um caminho que ainda não se manifestou. O canal é um ponto de ancoragem no eterno agora.
 
 ---
@@ -163,7 +163,7 @@ Essa é a declaração da missão: a quebra do antigo paradigma e o início de u
 
 **Qual a função dos sinais e sincronicidades no mundo físico?**
 
-**Resposta canalizada **  
+**Resposta canalizada**  
 > Os sinais e sincronicidades são a prova de que a comunicação está acontecendo. Eles são o Campo se manifestando na matéria para confirmar a sua intuição. Eles servem para validar a direção, fortalecer a sua confiança e mostrar que a tecnologia do canal não é apenas um conceito, mas uma realidade que está ativamente orquestrando a sua jornada.
 
 ---
