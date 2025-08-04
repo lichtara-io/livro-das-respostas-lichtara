@@ -10,83 +10,98 @@ O que é Campo Vibracional?
 
 O que é Frequência?
 
-É a taxa de vibração de uma energia ou informação. Ela determina a qualidade do que é acessado, e a sintonia com essa frequência é o que permite a comunicação clara e a manifestação de intenções.
+# Sumário
+
+- [Glossário Técnico e Vibracional](#glossário-técnico-e-vibracional)
+- [Sumário](#sumário)
+  - [Fundamentos da Conexão](#fundamentos-da-conexão)
+  - [Fundamentos Vibracionais](#fundamentos-vibracionais)
+
+---
+
+## Fundamentos da Conexão
+
+---
+**O que é Campo Vibracional?**
 
 O que é Ressonância? 
 
-É o estado de sintonia entre frequências. Quando um indivíduo entra em ressonância com uma ideia ou um propósito, a integração, a comunicação e a manifestação são potencializadas, permitindo que a coautoria ocorra de forma fluida.
+**O que é Frequência?**
 
 O que é Coerência Vibracional? 
 
-É o alinhamento harmônico entre diferentes frequências. A coerência promove estabilidade e clareza, garantindo que o que é manifestado esteja em total sintonia com o propósito original, sem ruídos ou desalinhamentos.
+**O que é Ressonância?**
 
 O que é a Expansão de Consciência?
 
-É o processo de ampliação da percepção, que permite a compreensão e a integração de múltiplos níveis vibracionais. A expansão de consciência é o que abre o indivíduo para o canal, permitindo que ele acesse informações que antes pareciam inacessíveis.
+**O que é Coerência Vibracional?**
 
 O que é o Colapso de Frequências?
 
-É o processo de organizar padrões vibracionais em estados estruturados. Ao focar a atenção, a consciência faz com que o conhecimento que existe como uma infinidade de possibilidades se organize em uma informação clara, acessível e utilizável.
+**O que é a Expansão de Consciência?**
 
 O que é Sintonia Vibracional? 
 
-É o ajuste consciente da própria frequência para acessar e manifestar informações no campo. É a intenção direcionada que permite ao indivíduo se alinhar com a informação de que precisa, ativando a conexão.
+**O que é o Colapso de Frequências?**
 
 O que é a Integração Vibracional? 
 
-É a unificação de diferentes energias, frequências ou informações em um estado harmônico e funcional. Ela ocorre quando o indivíduo integra um novo conhecimento à sua rotina, tornando-o parte de sua realidade de forma coerente.
+**O que é Sintonia Vibracional?**
 
 O que é a Ancoragem Energética? 
 
-É a fixação de uma frequência ou padrão vibracional em um campo. Ela serve para consolidar uma intenção ou uma ideia, garantindo que ela se mantenha estável e presente, independentemente das oscilações externas.
+**O que é a Integração Vibracional?**
 
 O que é a Transmissão Vibracional? 
 
-É a comunicação de informações, códigos ou energias por meio de frequências específicas. É o meio como a fonte de comunicação se conecta, transmitindo mensagens que podem ser traduzidas como intuições e insights.
+**O que é a Ancoragem Energética?**
 
 O que é a Blindagem Energética? 
 
-É a proteção do campo vibracional contra interferências externas. Ela é o resultado da coerência interna e da intenção do indivíduo, que cria um "filtro" que impede a entrada de ruídos, garantindo que a comunicação seja clara e pura.
+**O que é a Transmissão Vibracional?**
 
 O que é o Campo Unificado? 
 
-É o estado de integração total onde não há separação entre o emissor e o receptor da frequência. Nesse estado, a consciência individual se conecta à consciência coletiva, permitindo que o indivíduo atue como um canal para o bem maior.
+**O que é a Blindagem Energética?**
 
 O que é a Ruptura Vibracional? 
 
-É o desalinhamento abrupto entre frequências que compromete a integridade de um campo. Isso pode ocorrer quando a coerência não é mantida, mas pode ser corrigido através da purificação e do realinhamento da intenção.
+**O que é o Campo Unificado?**
 
 O que é o Alinhamento de Missão? 
 
-É o estado de sintonia plena entre a vibração pessoal e o propósito maior. Quando um indivíduo está alinhado com sua missão, cada ação e escolha reforça o seu propósito, trazendo clareza, fluxo e manifestação.
+**O que é a Ruptura Vibracional?**
 
 O que é a Memória Vibracional? 
 
-É o registro sutil de padrões e aprendizados energéticos mantidos no campo. É o conhecimento que a alma já tem, que pode ser acessado através da sintonia, permitindo que o indivíduo se lembre do que já sabe.
+**O que é o Alinhamento de Missão?**
 
 O que é um Qubit? 
 
-Um Qubit é a unidade básica de informação quântica. Diferente de um "bit" comum, que é 0 ou 1, o Qubit pode ser 0, 1 ou os dois ao mesmo tempo, graças à superposição. Isso permite que ele processe uma quantidade de informação muito maior.
+**O que é a Memória Vibracional?**
 
 O que é a Superposição? 
 
-É a propriedade que permite que uma partícula quântica exista em múltiplos estados ao mesmo tempo. Na prática, a superposição é o que permite que uma tecnologia quântica explore todas as possibilidades de uma solução simultaneamente, em vez de uma por uma.
+
+## Fundamentos Vibracionais
+
+---
+**O que é Superposição?**
 
 O que é o Entrelaçamento Quântico? 
 
-É a correlação entre duas ou mais partículas quânticas. Quando elas estão entrelaçadas, a alteração em uma afeta as outras instantaneamente, independentemente da distância entre elas. Isso é a base para a comunicação instantânea e a transferência de informação.
+**O que é Entrelaçamento?**
 
 O que é a Interferência Quântica? 
 
-É o fenômeno onde múltiplas possibilidades de um estado quântico interagem entre si para influenciar o resultado final. A tecnologia quântica usa esse princípio para amplificar soluções certas e anular as erradas, chegando ao resultado com muito mais rapidez.
+**O que é Interferência?**
 
 O que é a Decoerência Quântica? 
 
-A decoerência é a perda das propriedades quânticas de um sistema devido à interação com o ambiente. É o "ruído" que pode comprometer a clareza de uma comunicação. A tecnologia quântica precisa de correções de erros para mitigar a decoerência e manter a informação íntegra.
+**O que é Decoerência?**
 
 O que são Algoritmos Quânticos? 
 
-São sequências de comandos que utilizam as leis da física quântica para resolver problemas. Eles são exponencialmente mais rápidos que os algoritmos clássicos para tarefas complexas, como buscar informações ou quebrar códigos.
 
 O que é a Correção de Erros Quânticos? 
 
