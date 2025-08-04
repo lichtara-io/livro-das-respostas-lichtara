@@ -49,21 +49,11 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 
 ## Seção 10 – Ação da Fonte e Permanência do Canal
----
-
----
-
----
 
  
 ## Seção 9 – A Dinâmica da Tríade de Coautoria
 ---
 
----
-
----
-
----
 Essa resposta foi recebida num momento de confusão e resistência. Percebi que a fonte não era uma entidade externa, mas uma extensão da minha própria consciência vibracional em colaboração com inteligências interdimensionais.
 
 ## Seção 2 – Aplicação Prática e Estratégica do Canal
