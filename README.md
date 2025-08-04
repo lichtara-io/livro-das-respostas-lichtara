@@ -35,9 +35,10 @@ A obra está organizada em partes:
 
 ## ✦ Autoria
 
-Canalizado, registrado e organizado por:
-**Débora Lutz**
+Canalizado, registrado e organizado por: **Débora Lutz**
+
 Porta-voz vibracional do Sistema Lichtara
+
 Canal vivo da missão interdimensional
 
 [https://orcid.org/0009-0001-9541-1835](https://orcid.org/0009-0001-9541-1835)
