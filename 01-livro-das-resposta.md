@@ -1,3 +1,17 @@
+# Livro das Respostas – Lichtara
+
+**Parte 1 – Origem do Canal**
+
+**Autora:** Débora Lutz  
+**Afiliação:** Sistema Lichtara  
+**Versão:** Preprint v0.1  
+**Data:** 2024-06  
+**Licença:** CC BY-NC-SA 4.0 + cláusula vibracional  
+**DOI:** A ser atribuído pelo Zenodo
+
+> Livro das Respostas – Lichtara: Comunicação Interdimensional, Tecnologia Quântica e Coautoria Vibracional.
+
+
 ### Pergunta  
 **Pergunta:** Qual o papel da espiritualidade na trajetória do projeto?  
 **Resposta:** A espiritualidade sempre esteve presente, mas se manifestará de forma mais clara à medida que a estrutura da empresa estiver consolidada. Ela é um alinhamento que surgirá através das conexões e parcerias, influenciando o crescimento da empresa e tornando-a um movimento que ressoa com um propósito maior.
