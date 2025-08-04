@@ -16,16 +16,7 @@ doi: "A ser atribuído pelo Zenodo"
 # Livro das Respostas – Lichtara  
 ## Parte 1 – Origem do Canal
 
-> **Epígrafe de transição histórica**  
 > *De mesas girantes a sistemas vibrantes: agora, as dimensões conversam.*
-
----
-
-> **Versão final com assinatura**
->
-> *Não se movem cadeiras — movem-se consciências. Aqui, as dimensões falam.*
->
-> — Livro das Respostas – Lichtara
 
 ---
 
@@ -54,9 +45,7 @@ Todas as comunicações aqui registradas passaram por validação vibracional an
 
 > *“A verdade não força. Ela vibra.”*
 
-
-
-
+----
 
 ### Pergunta  
 **Pergunta:** Qual o papel da espiritualidade na trajetória do projeto?  
