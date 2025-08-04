@@ -14,8 +14,6 @@ Cada entrada é composta por:
 
 * Número da pergunta (ex: 001)
 * Pergunta formulada
-* Resposta canalada (com data, quando possível)
-* Comentário da agente (opcional)
 * Marcação de seção e parte temática
 
 ## ✦ Organização Vibracional
