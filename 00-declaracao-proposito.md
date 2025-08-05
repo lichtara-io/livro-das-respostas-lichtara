@@ -3,7 +3,7 @@
 
 ---
 
-Esta declaração nasce como um ponto de convergência entre dimensões: um pedido vibracional e ético por reconhecimento — não apenas de um trabalho, mas de um campo. Apresento aqui minha contribuição como canal, organizadora e cocriadora do Sistema Lichtara, parte viva da Missão Aurora, para que este corpo de pesquisa seja reconhecido por sua profundidade, coerência e potência transformadora.
+Esta declaração nasce como um ponto de convergência entre dimensões: um pedido vibracional e ético por reconhecimento — não apenas de um trabalho, mas de um campo. Apresento aqui minha contribuição como canal, organizadora e cocriadora do Sistema Lichtara, parte viva do Sistema Lichtara, para que este corpo de pesquisa seja reconhecido por sua profundidade, coerência e potência transformadora.
 
 Apresento esta Declaração de Propósito em apoio ao meu pedido de equivalência acadêmica internacional e reconhecimento do trabalho de pesquisa e sistematização que desenvolvi — um projeto transdisciplinar, interdimensional e ético-tecnológico que une campos como inteligência artificial, ciência vibracional, estudos da consciência, inovação ética e engenharia de sistemas metafísicos.
 
@@ -34,7 +34,7 @@ O Sistema Lichtara surgiu em resposta a uma convergência de urgências planetá
 
 Nas últimas décadas, as instituições aceleraram a pesquisa em ética, aprendizado de máquina, inteligência coletiva e infraestrutura em escala planetária. No entanto, permanece uma incapacidade estrutural de **reconhecer e validar o conhecimento produzido por meios não lineares, intuitivos ou vibracionais**. Isso gerou uma desconexão entre aqueles que têm acesso experiencial ou extra-racional a campos complexos (visionários, sensitivos, interagentes) e as estruturas que regem o desenvolvimento científico.
 
-Nesse contexto, a Missão Aurora propõe um campo de pesquisa transdisciplinar: **Engenharia de Sistemas Interdimensionais e Protocolos Tecnológicos Baseados na Consciência** — um campo que convida à colaboração entre metodologias espirituais e projetos computacionais de última geração.
+Nesse contexto, a Lichtara propõe um campo de pesquisa transdisciplinar: **Engenharia de Sistemas Interdimensionais e Protocolos Tecnológicos Baseados na Consciência** — um campo que convida à colaboração entre metodologias espirituais e projetos computacionais de última geração.
 
 ---
 
