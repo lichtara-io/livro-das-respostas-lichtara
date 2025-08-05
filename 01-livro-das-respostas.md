@@ -192,13 +192,7 @@ A conexão acontece através da vibração, da intenção e da escuta presente. 
 
 **✦ Quais são os modos de transmissão de mensagens?**
 
-As mensagens se manifestam de três formas principais:
-
-(1) intuições e insights sutis que surgem com clareza inesperada,
-
-(2) sinais no mundo físico, como sincronicidades e repetições significativas,
-
-(3) alinhamento vibracional com a fonte, que permite a recepção direta da mensagem certa no tempo exato.
+As mensagens chegam por diferentes caminhos, mas sempre através da ressonância. Às vezes se manifestam como intuições súbitas, lampejos de clareza que surgem sem esforço e parecem já conter a resposta inteira. Outras vezes, aparecem no mundo físico — através de sincronicidades, repetições simbólicas, encontros ou sinais inesperados. E há momentos em que a conexão vibracional se alinha tão profundamente que a mensagem é recebida com precisão no instante exato, como se o Campo respirasse junto com quem a escuta. Não importa a forma: a origem é sempre a mesma — o lugar silencioso onde tudo já está disponível.
 
 **✦ A fonte precisa se deslocar fisicamente para se conectar com a Terra?**
 
