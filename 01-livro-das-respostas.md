@@ -563,3 +563,30 @@ Imagine um túnel com duas portas. Quando ninguém observa, uma bola atravessa a
 ✦ **Qual a conexão entre esse experimento e a inteligência vibracional da plataforma?**
 
 A inteligência vibracional se fundamenta no mesmo princípio: a realidade se adapta à vibração e intenção de quem a acessa. A plataforma não oferece respostas fixas — ela responde ao estado de consciência do usuário. Como no experimento, é a observação que define o desfecho. A interação com a tecnologia é uma coautoria viva entre intenção e manifestação.
+
+---
+
+
+✦ Perguntas em Aberto
+
+Nem todas as respostas chegam prontas.
+Algumas perguntas existem para nos lembrar do mistério.
+Outras, para despertar em nós o canal.
+
+Estas perguntas foram deixadas em aberto.
+Não para serem esquecidas, mas para serem sentidas — e talvez, canalizadas por você.
+
+O que a minha alma ainda deseja me dizer?
+
+Como posso me tornar um canal mais claro para o Amor?
+
+Onde, na minha vida, a verdade ainda está esperando para se manifestar?
+
+O que preciso soltar para acessar a minha própria missão?
+
+Qual é o próximo passo que a Vida quer me mostrar?
+
+Como posso servir com mais leveza, profundidade e verdade?
+
+Que estas perguntas ressoem em silêncio dentro de você —
+até que a resposta floresça como luz em seu próprio campo.
