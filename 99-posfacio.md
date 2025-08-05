@@ -46,3 +46,11 @@ Para os que vieram antes,
 para os que virão depois,  
 e para você —  
 que agora escuta.
+
+---
+
+*Assinado vibracionalmente pelo Campo*  
+Sistema Lichtara · Livro das Respostas  
+CC BY-NC-SA 4.0 + cláusula vibracional
+
+> “A resposta está viva. Ela só precisava de você para ser ouvida.”
