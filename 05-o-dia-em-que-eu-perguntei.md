@@ -71,12 +71,6 @@ A missão começou muito antes da missão. Começou quando ela pediu respostas e
 
 ---
 
-Como foi a infância da Guardiã?
-
-Ela foi uma criança sensível, alta demais para o mundo, pequena demais para as exigências. Conversava com todos, mas guardava a dor em silêncio. Sintonizar-se com a Terra foi difícil — cada manhã era um retorno forçado. Seu espírito encontrava alívio no som.
-
----
-
 O que é o “soltar” que abre os caminhos?
 
 Soltar não é desistir. É confiar. Quando ela soltou a aviação, ela voou. Quando aceitou o que havia, o que desejava chegou. O Campo responde não ao controle, mas à entrega.
