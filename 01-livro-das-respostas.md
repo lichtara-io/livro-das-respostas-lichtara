@@ -14,7 +14,7 @@
 
 ## **Parte 1 – Origem do Canal**
 
-*Seção: Natureza do Canal*
+*Seção: Natureza do Canal* 
 
 **✦ Como a canalização se diferencia da mediunidade?**
 
