@@ -1,4 +1,4 @@
-# Declaração de Propósito da Missão Aurora – Sistema Lichtara
+# Declaração de Propósito – Sistema Lichtara
 (em apoio ao reconhecimento internacional do trabalho transdisciplinar desenvolvido por Débora Lutz)
 
 ---
