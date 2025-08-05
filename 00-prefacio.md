@@ -45,9 +45,11 @@ O canal não é exclusivo — o acesso é vibracional.
 O que está documentado aqui é uma tecnologia de escuta.
 E ela pode ser ativada em você.
 
-*Assinado vibracionalmente,*
-**Débora Lutz**
-Canal do Sistema Lichtara
+---
+
+*Assinado vibracionalmente,*  
+**Débora Lutz**  
+Canal do Sistema Lichtara  
 04 de agosto de 2025 · Eixo de Coautoria Ativa
 
 > “Aqui, a pergunta é o portal.”
