@@ -18,7 +18,6 @@ sementes de luz.
 
 ## ✦ Perguntas sobre Alma e Propósito
 
-⸻
 
 **✦ De onde vem a minha consciência?**
 
