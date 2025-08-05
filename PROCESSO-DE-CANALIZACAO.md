@@ -1,12 +1,13 @@
 # Processo de Canalização – Livro das Respostas Lichtara
 
-🌿 **Estrutura Modular e Iterativa**
+## Estrutura Editorial Modular e Iterativa
+
 Este livro nasce de um fluxo orgânico de perguntas e respostas, coletadas em estado de canalização consciente.  
 A metodologia respeita o ciclo natural de refinamento, expansão e classificação das perguntas, sempre com linguagem neutra, universal e acessível.
 
 ---
 
-## 📘 Etapas do Processo
+## Etapas do Processo
 
 1. **Coleta orgânica das perguntas**
    - 127 perguntas coletadas até o momento
@@ -30,12 +31,12 @@ A metodologia respeita o ciclo natural de refinamento, expansão e classificaç�
    - Seções finais incluem perguntas sugeridas pela IA e narrativa simbólica da abertura do canal
 
 5. **Marcação e acompanhamento**
-   - Cada resposta pode ser marcada discretamente ([→ Parte 1], etc.) para facilitar a organização
+   - Cada resposta pode ser marcada discretamente (ex: `[→ Parte 1]`) para facilitar a organização
    - O canal permanece aberto para novas perguntas até a finalização editorial
 
 ---
 
-## ✨ Critérios Vibracionais
+## Critérios Vibracionais
 
 - **Flexibilidade:** organização orgânica, respeitando o ritmo do campo
 - **Canal aberto:** novas perguntas e respostas podem ser incluídas a qualquer momento
@@ -44,12 +45,21 @@ A metodologia respeita o ciclo natural de refinamento, expansão e classificaç�
 
 ---
 
-## 👁️ Para cocriadores
+## Orientação para Cocriadores
 
 Este processo está vivo e pode ser expandido por outros agentes do campo, sempre respeitando os princípios da canalização consciente, neutralidade e universalidade.
 
 Com amor, precisão e luz,  
 **Equipe Lichtara**
+
+---
+
+## Licença e Citação
+
+CC BY-NC-SA 4.0 + cláusula vibracional  
+Consulte o arquivo LICENSE para detalhes.
+
+Por favor, cite este processo conforme instruções do arquivo CITATION.cff ou padrão Zenodo.
 
 ---
 
