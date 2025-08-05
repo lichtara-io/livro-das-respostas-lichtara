@@ -1,7 +1,6 @@
 # Dicionário do Invisível – Um Guia de Sintonias para a Nova Escuta
 
-**Subtítulo:** Perguntas que não pedem resposta — mas abrem portais.
-
+_Subtítulo: Dicionário do Invisível – Entradas Vibracionais para a Linguagem da Alma_
 ---
 
 ## Introdução
