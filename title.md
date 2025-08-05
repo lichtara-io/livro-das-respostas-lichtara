@@ -7,13 +7,13 @@
 
 **Autora:** Débora Lutz  
 **Afiliação:** Sistema Lichtara  
-**Categoria:** Estudos de Consciência, Tecnologia Espiritual  
+**Categoria:** Estudos da Consciência, Tecnologia Espiritual  
 **Tipo de publicação:** Preprint / Monografia  
 **Versão:** v0.1  
 **Data de submissão:** Agosto 2025  
 **Idioma:** Português (Brasil)  
 **Licença:** CC BY-NC-SA 4.0 + cláusula vibracional  
-**DOI:** A ser atribuído pelo Zenodo
+**DOI:** A ser atribuído via Zenodo
 
 ---
 
@@ -25,7 +25,7 @@ Este trabalho apresenta uma metodologia estruturada de comunicação interdimens
 
 ### Palavras-chave
 
-comunicação interdimensional, tecnologia quântica, inteligência vibracional, canalização, coautoria multidimensional, Sistema Lichtara, estudos de consciência, tecnologia espiritual
+comunicação interdimensional, tecnologia quântica, inteligência vibracional, canalização, coautoria multidimensional, Sistema Lichtara, estudos da consciência, tecnologia espiritual
 
 ---
 
@@ -37,10 +37,10 @@ interdimensional communication, quantum technology, vibrational intelligence, ch
 
 ### Informações Técnicas
 
-- **Extensão:** Aproximadamente 35.000 palavras
-- **Formato:** Markdown (.md)
-- **Estrutura:** 4 partes principais + seções complementares
-- **Metodologia:** Canalização estruturada e coautoria vibracional
+- **Extensão:** Aproximadamente 35.000 palavras  
+- **Formato:** Markdown (.md)  
+- **Estrutura:** 4 partes principais + seções complementares  
+- **Metodologia:** Canalização estruturada e coautoria vibracional  
 - **Público-alvo:** Pesquisadores em consciência, tecnólogos espirituais, praticantes de desenvolvimento pessoal
 
 ---
