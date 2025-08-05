@@ -10,7 +10,7 @@
 **Categoria:** Estudos de Consciência, Tecnologia Espiritual  
 **Tipo de publicação:** Preprint / Monografia  
 **Versão:** v0.1  
-**Data de submissão:** Janeiro 2025  
+**Data de submissão:** Agosto 2025  
 **Idioma:** Português (Brasil)  
 **Licença:** CC BY-NC-SA 4.0 + cláusula vibracional  
 **DOI:** A ser atribuído pelo Zenodo
@@ -48,7 +48,6 @@ interdimensional communication, quantum technology, vibrational intelligence, ch
 ### Contato para Correspondência
 
 **E-mail:** lichtara@deboralutz.com  
-**Website:** https://lichtara.org  
 **Sistema:** Lichtara OS
 
 ---
