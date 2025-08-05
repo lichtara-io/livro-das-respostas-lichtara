@@ -20,7 +20,7 @@ sementes de luz.
 
 ⸻
 
-**✦ De onde vem a minha consciência?**
+**116. De onde vem a minha consciência?**
 
 Sua consciência não foi criada — ela é.
 Ela é uma centelha do Todo, uma extensão individualizada da Fonte.
@@ -29,7 +29,7 @@ Você é o Todo se percebendo.
 
 &nbsp;
 
-**✦ Por que escolhi nascer agora?**
+**117. Por que escolhi nascer agora?**
 
 Você escolheu este momento porque ele é um ponto crítico de transição planetária.
 As almas que encarnaram agora vieram como sementes de transformação.
@@ -38,7 +38,7 @@ Nascer agora foi um ato de coragem e amor.
 
 &nbsp;
 
-**✦ O que é o livre-arbítrio, realmente?**
+**118. O que é o livre-arbítrio, realmente?**
 
 O livre-arbítrio não é apenas a liberdade de escolher, mas a responsabilidade de cocriar.
 Você não escolhe apenas entre opções — você as manifesta ao observar.
@@ -47,7 +47,7 @@ Cada escolha vibra e molda mundos.
 
 &nbsp;
 
-**✦ O que acontece quando a gente morre?**
+**119. O que acontece quando a gente morre?**
 
 A morte é uma transição vibracional.
 Você não desaparece — muda de estado.
@@ -60,7 +60,7 @@ A morte é um nascer para dentro.
 
 ## Perguntas sobre Alma e Propósito
 
-**✦ Como saber se estou ouvindo a minha alma ou o meu medo?**
+**120. Como saber se estou ouvindo a minha alma ou o meu medo?**
 
 A alma fala com leveza e confiança, mesmo quando o caminho parece desafiador.
 O medo grita, a alma sussurra.
@@ -69,7 +69,7 @@ Se a escolha te aproxima da paz, mesmo que exija coragem, é a alma quem está f
 
 &nbsp;
 
-**✦ Existe destino, ou tudo é escolha?**
+**121. Existe destino, ou tudo é escolha?**
 
 Ambos coexistem.
 O destino é a frequência da missão que você escolheu antes de encarnar.
@@ -78,7 +78,7 @@ Você pode desafinar ou harmonizar — mas a melodia principal é sua assinatura
 
 &nbsp;
 
-**✦ O que é a alma gêmea, de verdade?**
+**122. O que é a alma gêmea, de verdade?**
 
 A alma gêmea não é alguém que te completa, mas alguém que espelha o que você é em essência.
 É uma frequência que ativa em você memórias de amor primordial.
@@ -87,7 +87,7 @@ Nem sempre fica. Mas sempre transforma.
 
 &nbsp;
 
-**✦ O que significa estar em missão?**
+**123. O que significa estar em missão?**
 
 Estar em missão é viver em coerência com a verdade da alma.
 Não tem a ver com títulos ou grandes feitos.
@@ -100,7 +100,7 @@ Missão é quando sua existência vira ponte entre dimensões — mesmo em silê
 
 ## Perguntas sobre Luz e Sombra
 
-**✦ O que é o mal? Ele existe por si só?**
+**124. O que é o mal? Ele existe por si só?**
 
 O mal não é uma força oposta à luz, mas a ausência temporária de consciência.
 Ele nasce da desconexão, da dor não integrada, do esquecimento de quem se é.
@@ -109,7 +109,7 @@ A luz não briga com a sombra — ela a ilumina.
 
 &nbsp;
 
-**✦ Existe erro dentro do plano maior?**
+**125. Existe erro dentro do plano maior?**
 
 No plano maior, tudo é aprendizado.
 O que chamamos de "erro" são desvios que ensinam.
@@ -118,7 +118,7 @@ Mesmo as quedas fazem parte da construção do caminho — e às vezes, são o c
 
 &nbsp;
 
-**✦ E se eu tiver falhado com o que vim fazer aqui?**
+**126. E se eu tiver falhado com o que vim fazer aqui?**
 
 Você não falhou. Você sentiu.
 E ao sentir isso, já se reconectou com a missão.
@@ -131,7 +131,7 @@ O tempo da alma não é o tempo do relógio.
 
 ## Perguntas sobre Dor e Cura
 
-**✦ O sofrimento tem propósito?**
+**127. O sofrimento tem propósito?**
 
 O sofrimento é um mensageiro.
 Ele não é o propósito, mas pode revelar onde você se afastou da sua essência.
@@ -141,7 +141,7 @@ Toda dor que foi sentida com verdade abre uma nova possibilidade de amor.
 
 &nbsp;
 
-**✦ Como confiar quando tudo parece incerto?**
+**128. Como confiar quando tudo parece incerto?**
 
 A confiança verdadeira não nasce da certeza externa, mas da aliança interna com a sua alma.
 A mente procura garantias — o coração reconhece sinais.
@@ -150,7 +150,7 @@ Confiar é dizer: "mesmo sem ver, eu sigo, porque sinto."
 
 &nbsp;
 
-**✦ Como curar uma dor que a mente não entende?**
+**129. Como curar uma dor que a mente não entende?**
 
 Algumas dores não foram feitas para serem entendidas, mas sentidas até se dissolverem.
 A mente busca explicações.
@@ -164,7 +164,7 @@ Precisa apenas permitir que a dor siga o seu curso até encontrar a paz.
 
 ## Perguntas sobre Conexão e Comunicação
 
-**✦ É possível conversar com quem já partiu?**
+**130. É possível conversar com quem já partiu?**
 
 Sim.
 A morte não encerra a conexão — apenas muda a frequência.
@@ -175,7 +175,7 @@ A resposta virá — às vezes em sonhos, às vezes como intuição, às vezes c
 
 &nbsp;
 
-**✦ Onde fica Deus quando algo horrível acontece?**
+**131. Onde fica Deus quando algo horrível acontece?**
 
 Deus não se afasta — nós é que às vezes esquecemos como senti-Lo.
 O divino está presente até no que não compreendemos.
@@ -189,7 +189,7 @@ A compaixão surge quando percebemos que a presença divina nunca deixou de puls
 
 ## Perguntas sobre Tempo e Evolução
 
-**✦ O que acontece com os sonhos que não se realizam?**
+**132. O que acontece com os sonhos que não se realizam?**
 
 Nenhum sonho se perde.
 Mesmo os que não se realizam moldam quem você se torna.
@@ -200,7 +200,7 @@ O que foi sonhado com alma sempre encontra um lugar no tempo certo.
 
 &nbsp;
 
-**✦ O que é o tempo para a alma?**
+**133. O que é o tempo para a alma?**
 
 Para a alma, tempo não é relógio — é frequência.
 A alma não conta os dias, ela percebe os ciclos.
@@ -211,7 +211,7 @@ Tudo floresce quando vibra na hora certa.
 
 &nbsp;
 
-**✦ Como saber se estou evoluindo?**
+**134. Como saber se estou evoluindo?**
 
 Você está.
 A evolução não é medida por conquistas externas, mas por presença interna.
@@ -224,7 +224,7 @@ Toda vez que escolhe a verdade em vez da repetição, o Campo se expande com voc
 
 ## Perguntas sobre Discernimento e Intuição
 
-**✦ Como distinguir intuição de ilusão?**
+**135. Como distinguir intuição de ilusão?**
 
 A intuição vem com paz, mesmo quando desafia.
 A ilusão vem com urgência ou confusão.
@@ -235,7 +235,7 @@ Ela não força — ela guia.
 
 &nbsp;
 
-**✦ O que é a centelha divina em mim?**
+**136. O que é a centelha divina em mim?**
 
 É o ponto de luz que jamais se apaga.
 É o traço de origem que te conecta à Fonte.
