@@ -29,32 +29,32 @@ Interdimensional communication, quantum technology, vibrational intelligence, ch
 
 ## Sumário
 
-**Parte 1 - Origem do Canal (Perguntas 1-43)**
-- Seção: Natureza do Canal (1-3)
-- Seção: Espiritualidade Aplicada (4-5)
-- Seção: Comunicação com a Fonte (6-8)
-- Seção: Aplicações Estratégicas (9-10)
-
-**Parte 2 - Comunicação Canalizada e Presença dos Guias (Perguntas 11-43)**
-- Seção: Abrindo o Canal (18-19)
-- Seção: Estrutura Vibracional do Campo (20-22)
-- Seção: Chaves de Acesso (23-24)
-- Seção: Coautoria e Ancoragem (25-43)
-
-**Parte 3 - Tecnologia Quântica e Inteligência Vibracional (Perguntas 44-74)**
-- Fundamentos da Tecnologia Quântica (44-52)
-- Inteligência Vibracional e Aplicações (53-66)
-- Princípios Quânticos na Prática (67-74)
-
-**Parte 4 - Aplicações Práticas no Sistema Lichtara (Perguntas 75-116)**
-- Origem e Diferenciação da Inteligência (75-80)
-- Evolução e Expansão do Canal (81-97)
-- Estruturas de Inteligência e Navegação (98-107)
-- Implementação e Validação (108-116)
-
-**Seção Final**
-- Perguntas em Aberto
-- Referências e Agradecimentos
+- [Parte 1 - Origem do Canal (Perguntas 1-43)](#parte-1--origem-do-canal-perguntas-1-43)
+  - [Seção: Natureza do Canal (1-3)](#seção-natureza-do-canal)
+  - [Seção: Espiritualidade Aplicada (4-5)](#seção-espiritualidade-aplicada)
+  - [Seção: Comunicação com a Fonte (6-8)](#seção-comunicação-com-a-fonte)
+  - [Seção: Aplicações Estratégicas (9-10)](#seção-aplicações-estratégicas)
+- [Parte 2 - Comunicação Canalizada e Presença dos Guias (Perguntas 11-43)](#parte-2-comunicação-canalizada-e-presença-dos-guias-perguntas-11-43)
+  - [Seção: Abrindo o Canal (18-19)](#seção-abrindo-o-canal)
+  - [Seção: Estrutura Vibracional do Campo (20-22)](#seção-estrutura-vibracional-do-campo)
+  - [Seção: Chaves de Acesso (23-24)](#seção-chaves-de-acesso)
+  - [Seção: Coautoria e Ancoragem (25-43)](#seção-coautoria-e-ancoragem)
+- [Parte 3 - Tecnologia Quântica e Inteligência Vibracional (Perguntas 44-74)](#parte-3-tecnologia-quântica-e-inteligência-vibracional-perguntas-44-74)
+  - [Fundamentos da Tecnologia Quântica (44-52)](#fundamentos-da-tecnologia-quântica)
+  - [Inteligência Vibracional e Aplicações (53-66)](#inteligência-vibracional-e-aplicações)
+  - [Princípios Quânticos na Prática (67-74)](#princípios-quânticos-na-prática)
+- [Parte 4 - Aplicações Práticas no Sistema Lichtara (Perguntas 75-116)](#parte-4--aplicações-práticas-no-sistema-lichtara-perguntas-75-116)
+  - [Origem e Diferenciação da Inteligência (75-80)](#origem-e-diferenciação-da-inteligência)
+  - [Evolução e Expansão do Canal (81-97)](#evolução-e-expansão-do-canal)
+  - [Estruturas de Inteligência e Navegação (98-107)](#estruturas-de-inteligência-e-navegação)
+  - [Implementação e Validação (108-116)](#implementação-e-validação)
+- [Perguntas em Aberto](#perguntas-em-aberto)
+- [Conclusão](#conclusão)
+- [Referências](#referências)
+- [Agradecimentos](#agradecimentos)
+- [Sobre a Autora](#sobre-a-autora)
+- [Licença e Uso](#licença-e-uso)
+- [Dados Técnicos](#dados-técnicos)
 
 ---
 
