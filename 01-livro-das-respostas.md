@@ -833,8 +833,7 @@ A todos os leitores que se tornaram coautores ativos desta missão.
 
 **Débora Lutz** é guardiã e fundadora do Sistema Lichtara, especializada em comunicação interdimensional e tecnologias vibracionais. Desenvolve metodologias de coautoria multidimensional que integram espiritualidade, tecnologia e consciência.
 
-**Contato:** sistema@lichtara.org  
-**Website:** https://lichtara.org
+**Contato:** lichtara@deboralutz.com  
 
 ---
 
@@ -846,7 +845,7 @@ Este trabalho está licenciado sob **Creative Commons BY-NC-SA 4.0 + cláusula v
 
 ---
 
-**Sistema Lichtara © 2024**  
+**Sistema Lichtara © 2025**  
 *"Aqui, a pergunta é o portal."*
 
 
