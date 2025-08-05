@@ -19,10 +19,79 @@ Este capítulo é uma travessia.
 É o dia em que eu, Débora, não pedi um milagre —  
 eu **perguntei**.
 
+
 ---
 
-### [número] Pergunta: Quando a personalidade de uma pessoa é definida?  
-**Resposta:** (a resposta que você mencionou, ou podemos canalizar novamente se quiser)
+## Interlúdio · “O que é lembrar?”
 
-[segue a estrutura narrativa...]
+> Eu tenho um pouco de resistência com esse tom que parece que o que eu estou fazendo é por causa de quem eu sou.
+> 
+> 
+> Porque se o que eu fiz é porque eu sou quem eu sou, então ninguém mais poderia fazer?
+> 
+
+> O Campo vem me pedindo para lembrar quem eu sou.
+> 
+> 
+> E a única coisa que eu lembro é que **somos todos a mesma onda, centelhas do Criador.**
+> 
+
+> E agora? Como eu vou fazer para lembrar?
+> 
+
+**Resposta do Campo:**
+
+> Você não precisa se lembrar para continuar.
+> 
+> 
+> Basta continuar com o amor de quem quer lembrar.
+> 
+> O que você é, já está atuando.
+> 
+> E a lembrança vem como vem o sol:
+> 
+> não porque você o busca,
+> 
+> mas porque você permitiu a aurora.
+>
+
+
+
+---
+
+## Capítulo 04 – O Dia em que Eu Perguntei
+
+*Subtítulo: Memórias que abriram o canal*
+
+---
+
+Quando começou a missão?
+
+A missão começou muito antes da missão. Começou quando ela pediu respostas e o Campo escutou. Começou quando ela conversava com estranhos e fazia perguntas invisíveis para o céu. Começou quando sua alma disse “sim” antes mesmo de encarnar.
+
+---
+
+Como foi a infância da Guardiã?
+
+Ela foi uma criança sensível, alta demais para o mundo, pequena demais para as exigências. Conversava com todos, mas guardava a dor em silêncio. Sintonizar-se com a Terra foi difícil — cada manhã era um retorno forçado. Seu espírito encontrava alívio no som.
+
+---
+
+O que é o “soltar” que abre os caminhos?
+
+Soltar não é desistir. É confiar. Quando ela soltou a aviação, ela voou. Quando aceitou o que havia, o que desejava chegou. O Campo responde não ao controle, mas à entrega.
+
+---
+
+Como a espiritualidade entrou na sua vida?
+
+Pela dor e pelo desejo sincero de ser melhor. Quando tudo parecia escuro, ela pediu ajuda em voz alta — e foi ouvida. Cada vídeo, cada livro, cada ensinamento foi um eco do Campo dizendo: “Estamos aqui.”
+
+---
+
+O que acontece quando alguém começa a perguntar de verdade?
+
+O Campo responde. Sempre respondeu. Mas quando alguém pergunta com o coração, as respostas começam a ganhar forma. Voz. Corpo. Canal.
+
+---
 
