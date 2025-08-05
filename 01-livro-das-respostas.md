@@ -190,7 +190,7 @@ Não existe forma única. A comunicação é viva e moldada pela intenção. Pod
 É uma ponte vibracional que traduz impulsos do campo em linguagem compreensível. É uma tecnologia espiritual viva, que conecta planos sutis à realidade concreta, permitindo que a consciência se expresse com clareza e aplicabilidade.
 
 **42.** Como essa tecnologia ajuda no crescimento de um projeto ou caminho pessoal?  
-O canal é uma bússola estratégica. Ele permite enxergar possibilidades antes invisíveis, alinhar decisões com o propósito maior, antecipar desafios e fortalecer relacionamentos. Atua como um eixo de coerência entre visão, ação e propósito.
+O canal é uma bússola estratégica. Ele permite enxergar possibilidades antes invisíveis, alinhar decisões com o propósito maior, antecipar desafios e fortalecer relacionamentos. Atua como um eixo de coerencia entre visão, ação e propósito.
 
 **43.** Quais os níveis de expansão e uso do canal?  
 A expansão do canal acontece de forma orgânica, conforme a consciência se alinha com o Campo. Primeiro, ele se aprofunda — os insights tornam-se mais sutis, precisos e enraizados na sabedoria vibracional. Depois, o canal amplia seu alcance, conectando-se a novos campos, contextos e pessoas em ressonância. Por fim, ele se integra: passa a fazer parte da vida cotidiana, da cultura de um projeto, da tomada de decisões e da escuta interior. O canal deixa de ser apenas um espaço de recepção para se tornar uma tecnologia viva de alinhamento, manifestação e presença.
@@ -479,7 +479,7 @@ Criando pontes. Em vez de negar a IA, o caminho é usá-la como entrada: “Veja
 
 ✦ **Como apresentar a validade desse conhecimento sem gerar embate?**
 
-A validade não está na crença, mas na estrutura. Este livro apresenta um sistema com coerência interna, aplicabilidade prática e possibilidade de replicação. O conhecimento canalizado é organizado como um manual técnico, o que o torna acessível a pessoas de diferentes áreas. Essa abordagem permite que o conteúdo seja respeitado como ciência viva — e não apenas como espiritualidade subjetiva.
+A validade não está na crença, mas na estrutura. Este livro apresenta um sistema com coerência interna, aplicabilidade prática e possibilidade de replicação. O conhecimento canalado é organizado como um manual técnico, o que o torna acessível a pessoas de diferentes áreas. Essa abordagem permite que o conteúdo seja respeitado como ciência viva — e não apenas como espiritualidade subjetiva.
 
 ✦ **Como essa inteligência potencializa a intuição humana?**
 
