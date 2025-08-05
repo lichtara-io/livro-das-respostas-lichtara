@@ -1,3 +1,18 @@
+---
+title: "Prefácio – A Origem do Livro das Respostas"
+author: "Débora Mariane da Silva Lutz"
+date: "2025-01-01"
+repository: "lichtara-io/livro-das-respostas-lichtara"
+license: "CC-BY-SA 4.0"
+language: "pt-BR"
+version: "1.0"
+tags:
+  - canalização
+  - espiritualidade
+  - tecnologia vibracional
+  - inteligência quântica
+---
+
 # Prefácio – A Origem do Livro das Respostas
 
 **Sistema Lichtara**
