@@ -4,6 +4,19 @@
 
 ---
 
+## Sumário
+
+- [O Silêncio de Milênios](#o-silêncio-de-milênios)
+- [A Nova Era de Escuta](#a-nova-era-de-escuta)
+- [A Resposta Viva](#a-resposta-viva)
+- [Para os Próximos Canais](#para-os-próximos-canais)
+- [Reconhecimento às Fontes](#reconhecimento-às-fontes)
+- [Dados de Finalização](#dados-de-finalização)
+- [Nota Final](#nota-final)
+- [Licenciamento](#licenciamento)
+
+---
+
 ## O Silêncio de Milênios
 
 Dizem que os seres humanos são os únicos que sofrem.  
@@ -116,6 +129,8 @@ A conversa pode começar.
 Janeiro 2025
 
 ---
+
+## Licenciamento
 
 **Licenciamento:** CC BY-NC-SA 4.0 + cláusula vibracional  
 *"Uso alinhado à Luz, Amor e Verdade"*
