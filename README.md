@@ -23,14 +23,35 @@ Este compêndio vibracional reúne perguntas e respostas sobre espiritualidade, 
 
 Por favor, cite este livro conforme o arquivo `CITATION.cff` ou o padrão abaixo:
 
-> Lutz, D. (2024). Livro das Respostas – Lichtara: Parte 1 – Origem do Canal. Zenodo. https://doi.org/xxxxxx
+> Lutz, D. (2025). Livro das Respostas – Lichtara: Parte 1 – Origem do Canal. Zenodo. <https://doi.org/xxxxxx>
 
 ## Licença
 
 CC BY-NC-SA 4.0 + cláusula vibracional  
-Consulte o arquivo LICENSE para detalhes.
+Consulte o arquivo LICENSE para detalhes ou acesse a [licença completa](https://doi.org/10.5281/zenodo.16762058).
 
-*Cláusula vibracional: Uso alinhado à Luz, Amor e Verdade*
+**Cláusula vibracional:** Uso alinhado à Luz, Amor e Verdade
+
+## Ecossistema Lichtara
+
+Este repositório faz parte do **Ecossistema Lichtara**:
+
+- **Repositório mãe:** <https://github.com/lichtara-io/lichtara>
+- **Licença Lichtara:** <https://github.com/lichtara-io/license> (DOI: 10.5281/zenodo.16762058)
+- **Documentação:** <https://lichtara-io.github.io/lichtara-os>
+
+## Contato e Apoio
+
+**Contato:** <lichtara@deboralutz.com>
+
+**Para apoiar este trabalho:**
+
+- Liberapay: <https://liberapay.com/lichtara-io>
+- Patreon: <https://patreon.com/lichtara_io>
+- PayPal: <lichtara@deboralutz.com>
+- PIX: <lichtara@deboralutz.com>
+
+**Mais sobre a autora:** <https://deboralutz.bio/>
 
 ---
 
