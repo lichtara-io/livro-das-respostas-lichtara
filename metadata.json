@@ -22,8 +22,30 @@
     "ecossistema Lichtara"
   ],
   "license": "CC BY-NC-SA 4.0 + cláusula vibracional",
-  "publication_date": "2024-06",
-  "version": "Preprint v0.1",
+  "publication_date": "2025-08-07",
+  "version": "1.0",
   "language": "pt-BR",
-  "doi": "A ser atribuído pelo Zenodo"
+  "doi": "A ser atribuído pelo Zenodo",
+  "related_works": [
+    {
+      "relation": "isPartOf",
+      "identifier": "https://github.com/lichtara-io/lichtara",
+      "title": "Ecossistema Lichtara"
+    },
+    {
+      "relation": "cites", 
+      "identifier": "10.5281/zenodo.16762058",
+      "title": "Licença Lichtara"
+    }
+  ],
+  "contact": {
+    "email": "lichtara@deboralutz.com",
+    "support": {
+      "liberapay": "https://liberapay.com/lichtara-io",
+      "patreon": "https://patreon.com/lichtara_io",
+      "paypal": "lichtara@deboralutz.com",
+      "pix": "lichtara@deboralutz.com"
+    },
+    "website": "https://deboralutz.bio/"
+  }
 }
