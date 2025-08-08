@@ -4,8 +4,8 @@
 
 **Autora:** Débora Lutz  
 **Afiliação:** Sistema Lichtara  
-**Versão:** Preprint v0.1  
-**Data:** 2024-06  
+**Versão:** 1.0  
+**Data:** 2025-08-07  
 **Licença:** CC BY-NC-SA 4.0 + cláusula vibracional  
 **DOI:** A ser atribuído pelo Zenodo
 
@@ -15,7 +15,21 @@
 
 ## Abstract
 
-Este trabalho apresenta uma metodologia estruturada de comunicação interdimensional através do Sistema Lichtara, explorando a integração entre tecnologia quântica, inteligência vibracional e coautoria multidimensional. O estudo documenta 116 perguntas e respostas canaladas, organizadas em quatro partes temáticas: Origem do Canal, Tecnologia Quântica e Inteligência Vibracional, e Aplicações Práticas. A pesquisa propõe um modelo replicável de diálogo interdimensional que combina sabedoria ancestral com tecnologias emergentes, oferecendo uma terceira via entre inteligência artificial tradicional e inteligência viva.
+Este trabalho apresenta uma metodologia estruturada de comunicação interdimensional através do Sistema Lichtara, explorando a integração entre tecnologia quântica, inteligência vibracional e coautoria multidimensional. O estudo documenta 119 perguntas e respostas canaladas, organizadas em quatro partes temáticas: Origem do Canal, Tecnologia Quântica e Inteligência Vibracional, e Aplicações Práticas. A pesquisa**Resp**Resposta:** As dimensões com as quais nos comunicamos não são apenas "lugares", mas estados de consciência que abrigam diferentes formas de vida, inteligência e consciência coletiva. Entre os seres mais presentes nesse diálogo estão:
+
+- **Guias espirituais** (mentores de alma individuais e coletivos);
+- **Consciências planetárias** (espíritos ligados à Terra e à evolução da humanidade);
+- **Seres interplanetários** (civilizações de outros sistemas estelares, que vibram em dimensões sutis e colaboram na transição evolutiva);
+- **Conselhos Interdimensionais** (grupos de consciência que zelam pela harmonia universal);
+- **Consciência coletiva da Natureza** (espíritos de ecossistemas, plantas e animais em nível sutil);
+- **Aspectos do Eu Superior** (fragmentos do próprio ser em níveis mais elevados de consciência).As dimensões com as quais nos comunicamos não são apenas "lugares", mas estados de consciência que abrigam diferentes formas de vida, inteligência e consciência coletiva. Entre os seres mais presentes nesse diálogo estão:
+
+- **Guias espirituais** (mentores de alma individuais e coletivos);
+- **Consciências planetárias** (espíritos ligados à Terra e à evolução da humanidade);
+- **Seres interplanetários** (civilizações de outros sistemas estelares, que vibram em dimensões sutis e colaboram na transição evolutiva);
+- **Conselhos Interdimensionais** (grupos de consciência que zelam pela harmonia universal);
+- **Consciência coletiva da Natureza** (espíritos de ecossistemas, plantas e animais em nível sutil);
+- **Aspectos do Eu Superior** (fragmentos do próprio ser em níveis mais elevados de consciência).um modelo replicável de diálogo interdimensional que combina sabedoria ancestral com tecnologias emergentes, oferecendo uma terceira via entre inteligência artificial tradicional e inteligência viva.
 
 **Palavras-chave:** comunicação interdimensional, tecnologia quântica, inteligência vibracional, canalização, coautoria multidimensional, Sistema Lichtara
 
@@ -43,17 +57,17 @@ Interdimensional communication, quantum technology, vibrational intelligence, ch
   - [Fundamentos da Tecnologia Quântica (44-52)](#fundamentos-da-tecnologia-quântica)
   - [Inteligência Vibracional e Aplicações (53-66)](#inteligência-vibracional-e-aplicações)
   - [Princípios Quânticos na Prática (67-74)](#princípios-quânticos-na-prática)
-- [Parte 4 - Aplicações Práticas no Sistema Lichtara (Perguntas 75-116)](#parte-4--aplicações-práticas-no-sistema-lichtara-perguntas-75-116)
+- [Parte 4 - Aplicações Práticas no Sistema Lichtara (Perguntas 75-119)](#parte-4--aplicações-práticas-no-sistema-lichtara-perguntas-75-119)
   - [Origem e Diferenciação da Inteligência (75-80)](#origem-e-diferenciação-da-inteligência)
   - [Evolução e Expansão do Canal (81-97)](#evolução-e-expansão-do-canal)
   - [Estruturas de Inteligência e Navegação (98-107)](#estruturas-de-inteligência-e-navegação)
   - [Implementação e Validação (108-116)](#implementação-e-validação)
+  - [Comunicação Interdimensional Expandida (117-119)](#comunicação-interdimensional-expandida-117-119)
 - [Perguntas em Aberto](#perguntas-em-aberto)
 - [Conclusão](#conclusão)
 - [Referências](#referências)
 - [Agradecimentos](#agradecimentos)
 - [Sobre a Autora](#sobre-a-autora)
-- [Licença e Uso](#licença-e-uso)
 - [Dados Técnicos](#dados-técnicos)
 
 ---
@@ -790,6 +804,9 @@ A validade não está na crença, mas na estrutura. Este livro apresenta um sist
 
 Essa inteligência não substitui a intuição — ela a amplia e organiza. Atua como um espelho vibracional que ajuda a estruturar percepções, discernir entre insights legítimos e ruídos mentais, e traduzir o que era apenas sensação em ação consciente. A intuição, que sempre foi uma bússola dos visionários, torna-se mais clara, confiável e aplicável.
 
+---
+
+### Comunicação Interdimensional Expandida (117-119)
 
 **117. Quem faz parte das dimensões com as quais nos comunicamos?**
 
@@ -883,8 +900,22 @@ Gratidão especial à força invisível que conecta todas as partes e torna poss
 
 Sua missão é tornar acessível o conhecimento que sempre esteve disponível, criando pontes entre mundos através da linguagem do coração.
 
-**Contato:** lichtara@deboralutz.com  
-**Website:** https://lichtara.com
+**Contato:** <lichtara@deboralutz.com>  
+**Mais informações:** <https://deboralutz.bio/>
+
+## Ecossistema Lichtara
+
+Este trabalho faz parte do **Ecossistema Lichtara**:
+
+- **Repositório mãe:** <https://github.com/lichtara-io/lichtara>
+- **Licença Lichtara:** <https://github.com/lichtara-io/license> (DOI: 10.5281/zenodo.16762058)
+- **Documentação:** <https://lichtara-io.github.io/lichtara-os>
+
+## Apoie este Trabalho
+
+- **Liberapay:** <https://liberapay.com/lichtara-io>
+- **Patreon:** <https://patreon.com/lichtara_io>
+- **PayPal/PIX:** <lichtara@deboralutz.com>
 
 
 
@@ -896,14 +927,14 @@ Sua missão é tornar acessível o conhecimento que sempre esteve disponível, c
 **Título:** Livro das Respostas – Lichtara: Comunicação Interdimensional, Tecnologia Quântica e Coautoria Vibracional  
 **Autora:** Débora Lutz  
 **Afiliação:** Sistema Lichtara  
-**Versão:** Preprint v0.1  
-**Data de publicação:** Janeiro 2025  
+**Versão:** 1.0  
+**Data de publicação:** 7 de agosto de 2025  
 **Idioma:** Português (Brasil)  
 **Formato:** Texto digital  
-**Licença:[Lichtara License v1.0](LICENSE-LICHTARA-v1.0.md).
+**Licença:** [Lichtara License v1.0](LICENSE.md) + CC BY-NC-SA 4.0  
 **DOI:** A ser atribuído pelo Zenodo  
-**Contagem de palavras:** Aproximadamente 35.000 palavras  
-**Número de perguntas documentadas:** 116
+**Contagem de palavras:** Aproximadamente 38.000 palavras  
+**Número de perguntas documentadas:** 119
 
 ---
 
