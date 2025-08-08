@@ -37,9 +37,10 @@ Compêndio vivo de perguntas feitas por Débora Lutz e respostas canalizadas ent
 - campo quântico
 
 ### Licenciamento
-- **Licença Principal:** CC BY-NC-SA 4.0
+- **Licença Principal:** Lichtara License v1.0 (DOI: 10.5281/zenodo.16762058)
+- **Licença Complementar:** CC BY-NC-SA 4.0
 - **Cláusula Vibracional:** Uso alinhado à Luz, Amor e Verdade
-- **Licença Completa:** https://github.com/lichtara-io/license (DOI: 10.5281/zenodo.16762058)
+- **Licença Completa:** <https://github.com/lichtara-io/license> (DOI: 10.5281/zenodo.16762058)
 
 ### Categorização
 - **Tipo de Upload:** Publicação
