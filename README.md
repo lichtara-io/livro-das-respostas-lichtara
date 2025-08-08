@@ -27,7 +27,8 @@ Por favor, cite este livro conforme o arquivo `CITATION.cff` ou o padrão abaixo
 
 ## Licença
 
-Este projeto está licenciado sob a [Lichtara License v1.0](LICENSE-LICHTARA-v1.0.md).
+CC BY-NC-SA 4.0 + cláusula vibracional  
+Consulte o arquivo LICENSE para detalhes ou acesse a [licença completa](https://doi.org/10.5281/zenodo.16762058).
 
 **Cláusula vibracional:** Uso alinhado à Luz, Amor e Verdade
 
