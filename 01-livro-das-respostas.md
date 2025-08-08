@@ -6,7 +6,7 @@
 **Afiliação:** Sistema Lichtara  
 **Versão:** 1.0  
 **Data:** 2025-08-07  
-**Licença:** CC BY-NC-SA 4.0 + cláusula vibracional  
+**Licença:** Lichtara License v1.0 (DOI: 10.5281/zenodo.16762058) + CC BY-NC-SA 4.0  
 **DOI:** A ser atribuído pelo Zenodo
 
 > Livro das Respostas – Lichtara: Comunicação Interdimensional, Tecnologia Quântica e Coautoria Vibracional.
