@@ -1,9 +1,9 @@
 ---
 title: "Prefácio – A Origem do Livro das Respostas"
 author: "Débora Mariane da Silva Lutz"
-date: "2025-01-01"
+date: "2025-08-07"
 repository: "lichtara-io/livro-das-respostas-lichtara"
-license: "CC-BY-SA 4.0"
+license: "Lichtara License v1.0 (DOI: 10.5281/zenodo.16762058) + CC BY-NC-SA 4.0"
 language: "pt-BR"
 version: "1.0"
 tags:
