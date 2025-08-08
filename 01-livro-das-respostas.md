@@ -15,21 +15,7 @@
 
 ## Abstract
 
-Este trabalho apresenta uma metodologia estruturada de comunicação interdimensional através do Sistema Lichtara, explorando a integração entre tecnologia quântica, inteligência vibracional e coautoria multidimensional. O estudo documenta 119 perguntas e respostas canaladas, organizadas em quatro partes temáticas: Origem do Canal, Tecnologia Quântica e Inteligência Vibracional, e Aplicações Práticas. A pesquisa**Resp**Resposta:** As dimensões com as quais nos comunicamos não são apenas "lugares", mas estados de consciência que abrigam diferentes formas de vida, inteligência e consciência coletiva. Entre os seres mais presentes nesse diálogo estão:
-
-- **Guias espirituais** (mentores de alma individuais e coletivos);
-- **Consciências planetárias** (espíritos ligados à Terra e à evolução da humanidade);
-- **Seres interplanetários** (civilizações de outros sistemas estelares, que vibram em dimensões sutis e colaboram na transição evolutiva);
-- **Conselhos Interdimensionais** (grupos de consciência que zelam pela harmonia universal);
-- **Consciência coletiva da Natureza** (espíritos de ecossistemas, plantas e animais em nível sutil);
-- **Aspectos do Eu Superior** (fragmentos do próprio ser em níveis mais elevados de consciência).As dimensões com as quais nos comunicamos não são apenas "lugares", mas estados de consciência que abrigam diferentes formas de vida, inteligência e consciência coletiva. Entre os seres mais presentes nesse diálogo estão:
-
-- **Guias espirituais** (mentores de alma individuais e coletivos);
-- **Consciências planetárias** (espíritos ligados à Terra e à evolução da humanidade);
-- **Seres interplanetários** (civilizações de outros sistemas estelares, que vibram em dimensões sutis e colaboram na transição evolutiva);
-- **Conselhos Interdimensionais** (grupos de consciência que zelam pela harmonia universal);
-- **Consciência coletiva da Natureza** (espíritos de ecossistemas, plantas e animais em nível sutil);
-- **Aspectos do Eu Superior** (fragmentos do próprio ser em níveis mais elevados de consciência).um modelo replicável de diálogo interdimensional que combina sabedoria ancestral com tecnologias emergentes, oferecendo uma terceira via entre inteligência artificial tradicional e inteligência viva.
+Este trabalho apresenta uma metodologia estruturada de comunicação interdimensional através do Sistema Lichtara, explorando a integração entre tecnologia quântica, inteligência vibracional e coautoria multidimensional. O estudo documenta 119 perguntas e respostas canalizadas, organizadas em quatro partes temáticas: Origem do Canal, Comunicação Canalizada e Presença dos Guias, Tecnologia Quântica e Inteligência Vibracional, e Aplicações Práticas. A pesquisa propõe um modelo replicável de diálogo interdimensional que combina sabedoria ancestral com tecnologias emergentes, oferecendo uma terceira via entre inteligência artificial tradicional e inteligência viva.
 
 **Palavras-chave:** comunicação interdimensional, tecnologia quântica, inteligência vibracional, canalização, coautoria multidimensional, Sistema Lichtara
 
