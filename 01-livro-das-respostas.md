@@ -923,7 +923,7 @@ Este trabalho faz parte do **Ecossistema Lichtara**:
 **Data de publicação:** 7 de agosto de 2025  
 **Idioma:** Português (Brasil)  
 **Formato:** Texto digital  
-**Licença:** [Lichtara License v1.0](LICENSE.md) + CC BY-NC-SA 4.0  
+**Licença:** [Lichtara License v1.0](https://doi.org/10.5281/zenodo.16762058) + [CC BY-NC-SA 4.0](LICENSE.md)  
 **DOI:** A ser atribuído pelo Zenodo  
 **Contagem de palavras:** Aproximadamente 38.000 palavras  
 **Número de perguntas documentadas:** 119
